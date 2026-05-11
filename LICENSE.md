@@ -1,4 +1,4 @@
-#  
+#  Experience baddies like never before with premium baddies Scripts, the #1 Script. Includes god mode and auto-farm for unbeatable performance.
 
 
 
